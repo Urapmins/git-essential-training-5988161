@@ -1,1 +1,1 @@
-this is new line, this is change by the way
+this is new line, konfliktia tässä haetaan
